@@ -1,1 +1,1 @@
-orgin from [https://o0HalfLife0o/crosswalk]
+orgin from https://o0HalfLife0o/crosswalk
